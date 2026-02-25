@@ -1,4 +1,4 @@
-# 🎯 FF REGE HEADSHOT SCRIPT COLLECTION v9.5
+# 🎯 FF REGE HEADSHOT SCRIPT COLLECTION v1.1
 
 ![Version](https://img.shields.io/badge/version-1.1-blue)
 ![Status](https://img.shields.io/badge/status-stable-green)
@@ -9,7 +9,7 @@
 
 ## 📋 **DESKRIPSI**
 
-Koleksi script **Auto Headshot REAL GAME ENGINE** untuk Free Fire (Reguler & Max) dengan berbagai tingkat keberhasilan.
+Koleksi script **Auto Headshot** untuk Free Fire (Reguler & Max) dengan berbagai tingkat keberhasilan.
 
 # **MOHON BACA LICENSE TERLEBIH DAHULU**
 ---
