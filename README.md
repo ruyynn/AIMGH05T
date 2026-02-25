@@ -11,7 +11,7 @@
 
 Koleksi script **Auto Headshot REAL GAME ENGINE** untuk Free Fire (Reguler & Max) dengan berbagai tingkat keberhasilan.
 
-
+# **MOHON BACA LICENSE TERLEBIH DAHULU**
 ---
 
 ## 📢 **PERNYATAAN RESMI (WAJIB BACA!)**
