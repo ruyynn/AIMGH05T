@@ -1,0 +1,2 @@
+Ngapain bang?? Beli cuyy
+oiuy12ui`cn unc99x  bdajbjahciuhdi  u3r98u93ru222222z imskabsjwjhqbbweugqwuegu23gucdjbjsabdxjbcjbiwqiheix2qihdhqjebcdjqehqio  ciqiehdqkjhckjxwiqnu  c0-9`  c]-  1-9c[i  oqoxs  ihnsx109u102uei]1  ]  1eix0i0e  ie021uhi23cirn2inxdiqwniznfyiuwqeyfr832yrnt34crnq4ix8ymyz8  xm  nnci8bb3cbb2iuqby3cubufguwuhxmw,fioefkajiuhcfawienicmawez,ow,qeifh834qyrtqy90-i=4q'''xqojcdiwhxihdweifhciwh[fwqwhcihixqjbzh
