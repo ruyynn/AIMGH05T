@@ -1,4 +1,4 @@
-# 🎯 FF REGE HEADSHOT SCRIPT COLLECTION v1.1
+# 🎯 FF REGE HEADSHOT COLLECTION v1.1
 
 ![Version](https://img.shields.io/badge/version-1.1-blue)
 ![Status](https://img.shields.io/badge/status-stable-green)
@@ -6,6 +6,8 @@
 ![Work](https://img.shields.io/badge/work%20rate-10%25--88%25-orange)
 
 ---
+## Buy via WhatsApp 
+[![WhatsApp](https://img.shields.io/badge/WhatsApp-Contact-25D366?style=for-the-badge&logo=whatsapp)](https://wa.me/6289628185972?text=Bang%20mau%20beli%20rege)
 
 ## 📋 **DESKRIPSI**
 
