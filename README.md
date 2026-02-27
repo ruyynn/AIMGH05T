@@ -88,6 +88,18 @@
 
 ---
 
+<div align="center">
+  
+  ### 📜 LICENSE
+  
+  Dengan menggunakan script ini, Anda dianggap telah membaca dan menyetujui ketentuan yang berlaku.
+  
+  **[👉 KLIK DISINI UNTUK BACA LICENSE]([https://github.com/ruyynn/RegeFFstep/blob/main/LICENSE)**
+  
+  ---
+  
+</div>
+
 ## 🌐 KUNJUNGI WEBSITE SAYA
 ### 👉 **[ghostdev.great-site.net](http://ghostdev.great-site.net)**
 
